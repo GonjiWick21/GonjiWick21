@@ -2,7 +2,7 @@
 - 👀 I’m interested in making system
 - 🌱 I’m currently learning programming
 - 💞️ I’m looking to collaborate on anyone who know to develop any system,game or website
-- 📫 How to reach me, email me faizitakiya@gamil.com
+- 📫 How to reach me, email me faizitakiya@gmail.com
 - 😄 Pronouns: Gudluck!!
 - ⚡ Fun fact: Dangerous
 
